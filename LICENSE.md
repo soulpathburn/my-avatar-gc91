@@ -1,4 +1,4 @@
-#  
+#  Experience my avatar like never before with my avatar new Scripts, the #1 Script. Includes auto-upgrade and undetectable for unbeatable performance.
 
 
 
